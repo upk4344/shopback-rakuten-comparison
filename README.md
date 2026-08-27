@@ -1,0 +1,1 @@
+# shopback-rakuten-comparison
